@@ -1,2 +1,2 @@
 ## 🌸Hello🌸
-Here are some of my projects!
+Create things that make others smile 
