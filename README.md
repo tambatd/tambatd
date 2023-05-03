@@ -1,2 +1,2 @@
 ## ❀ Hello ❀
-![hikonyan](https://user-images.githubusercontent.com/54927248/235793579-06756690-1e56-40b9-92f4-8fee3fe8ae3c.png)
+![hikonyan](https://user-images.githubusercontent.com/54927248/235878090-fa7339c7-7344-4588-a0fa-c02c92ca7637.png)
